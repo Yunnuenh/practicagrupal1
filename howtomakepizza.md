@@ -1,6 +1,14 @@
-Preparacion de la Masa:
-Agregar en un bol el aceite, el agua y la levadura. 
-Mezclamos  y añadimos la harina y la pizca de sal. 
-Amasar bien hasta que la masa no se pegue a los dedos 
-Uma vez lista, la dejamos reposar durante 1 hora mas o menos. 
-Luego esta lista para amasar. 
+1.Precalentar el horno a 200°C.
+
+2.Extender la masa de pizza en una bandeja de horno, cubierta con papel de hornear.
+
+3.Añadir la salsa de tomate sobre la masa de pizza y extenderla con una cuchara, dejando un borde de 1 cm sin cubrir.
+
+4.Agregar el queso mozzarella rallado, asegurándote de que
+1.Precalentar el horno a 200°C.
+
+2.Extender la masa de pizza en una bandeja de horno, cubierta con papel de hornear.
+
+3.Añadir la salsa de tomate sobre la masa de pizza y extenderla con una cuchara, dejando un borde de 1 cm sin cubrir.
+
+4.Agregar el queso mozzarella rallado, asegurándote de que
