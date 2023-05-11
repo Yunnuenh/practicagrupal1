@@ -1,11 +1,14 @@
-350 gr de harina de trigo
-180 ml de agua.
-1 cucharadita de sal
-½ cucharadita de levadura seca
-2 ½ cucharaditas de aceite de oliva
-6 cucharadas de salsa pomodoro
-1 taza de mozzarella de búfalo
-2 tomates chontos pequeños, cortados en tajadas
-½ taza de aceitunas cortadas por la mitad
-2 cucharadas de hojas de albahaca fresca
-Orégano, peperoncino y pimienta para servir
+1.Precalentar el horno a 200°C.
+
+2.Extender la masa de pizza en una bandeja de horno, cubierta con papel de hornear.
+
+3.Añadir la salsa de tomate sobre la masa de pizza y extenderla con una cuchara, dejando un borde de 1 cm sin cubrir.
+
+4.Agregar el queso mozzarella rallado, asegurándote de que
+1.Precalentar el horno a 200°C.
+
+2.Extender la masa de pizza en una bandeja de horno, cubierta con papel de hornear.
+
+3.Añadir la salsa de tomate sobre la masa de pizza y extenderla con una cuchara, dejando un borde de 1 cm sin cubrir.
+
+4.Agregar el queso mozzarella rallado, asegurándote de que
